@@ -1,0 +1,1 @@
+Sistema operativo Windows 7/8/10 32 bits
